@@ -1,0 +1,1 @@
+# BMI-Amharic-app-Privacy-Policy
